@@ -26,7 +26,7 @@
 ## 📌 Quick Links  
 
 - 📝 [Portfolio Website](#) *(coming soon)*  
-- 📫 Reach me at: **yourmail@example.com**  
+- 📫 Reach me at: **04pnkr@gmail.com**  
 - 🌍 Based in: **India**  
 
 ---
